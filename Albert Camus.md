@@ -5,6 +5,7 @@
 - “We rarely trust people better than ourselves. We'd rather avoid dealing with them. Instead, we usually confide in people who are similar to us and have the same weaknesses as us.”
 - “When I'm tired of listening to someone and want to get rid of him, I pretend to agree readily.”
 - “There is no love of life without despair about life.”
+
 《鼠疫》 :
 - “What interests me is living and dying for what one loves.”
 - “The plague is like an abstract concept, monotonous and unchanging. Maybe only one thing is changing, and that is Dr. Rieux himself.”
