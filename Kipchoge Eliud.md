@@ -1,4 +1,3 @@
-- You have no limited.
 - Only the disciplined in life are free.
 - Only disciplined people are truly free. If you are not disciplined, you will only become a slave to your emotions.
 - Be patient. Training doesn't happen overnight. Follow the plan and you will achieve your goal.
